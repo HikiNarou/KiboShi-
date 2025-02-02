@@ -1,6 +1,6 @@
 # 🌟 Kiboshi (キボシ) – AI Fantasi & Kreativitas di Genggamanmu  
 
-![Kiboshi Banner](https://your-image-link.com)  
+![Kiboshi Banner](https://i.ibb.co.com/svpXzXMF/kiboshi3-removebg-preview-1.png)  
 
 > **希望星 (Kiboshi) berarti 'Bintang Harapan'.**
 > Kiboshi adalah AI yang menghubungkanmu dengan dunia fantasi, kreativitas, dan hiburan interaktif melalui WhatsApp! 🚀
